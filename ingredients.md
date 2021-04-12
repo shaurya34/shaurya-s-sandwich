@@ -1,0 +1,1 @@
+two peices of white or sandwich and all the sauces you have(like tomato,schezwan ext.) expect soy sauce.
